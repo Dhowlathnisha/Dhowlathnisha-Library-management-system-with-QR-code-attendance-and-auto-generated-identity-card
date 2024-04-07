@@ -1,0 +1,1 @@
+"Modernize library management with QR code attendance and auto-generated ID cards. Streamline access and enhance security for patrons and staff. Simplify administrative tasks and improve efficiency. Revolutionize the library experience with innovative technology solutions."
